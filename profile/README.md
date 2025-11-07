@@ -1,4 +1,4 @@
-# 🎵 Grammy Nominations 2026 Announced — Full Details & Highlights
+# Grammy Nominations 2026 Announced — Full Details & Highlights
 
 **Date:** November 7, 2025  
 **Location:** Los Angeles, USA  
